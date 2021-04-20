@@ -1,6 +1,6 @@
 ### Yo ✌🏽
 
-I'm a design enthusiast from Sydney, Australia. In 2016, I disappointed my parents by dropping out of Sydney Law School to pursue a career designing, making and destroying things with a tool I've always been fond of; my computer.
+I'm a product enthusiast from Sydney, Australia. In 2016, I disappointed my parents by dropping out of Sydney Law School to pursue a career designing, making and destroying things with a tool I've always been fond of; my computer.
 
 [vishaluppal.com](https://vishaluppal.com)\
 [@dearvishaluppal](https://twitter.com/dearvishaluppal)
